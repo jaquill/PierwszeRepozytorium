@@ -1,1 +1,1 @@
-Moje pierwsze repozytorium!	
+trolololo
